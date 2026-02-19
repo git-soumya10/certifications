@@ -9,6 +9,6 @@ Issued by: International Organization for Standardization
 Issued by: Scrum Alliance  
 [View Certificate (PDF)](csm-scrum-alliance-certificate.pdf)
 
-## Product Management & Agentic AI – Masai x IIT Patna (2025)
+## Product Management & Agentic AI – Masai x IIT Patna (2026)
 Issued by: Masai School in collaboration with IIT Patna  
 [View Certificate (PDF)](masai-iit-patna-product-management-2025.pdf)
